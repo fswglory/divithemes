@@ -1,0 +1,2 @@
+# divithemes
+Frankly Speaking with Glory is a website about saying it the way it is. I am a Coder and Blogger that gives her candid opinion about: Relationship Talks and Social Issues.  The site provides you with daily social issues, BBnaija Updates, Software Coding, and Analytic work.  Simply visit the website, check out all our updates on Big Brother Naija Season 5 and the Reunion Liveshow  visit https://franklyspeakingwithlglory.com/ and https://www.myyacafe.com
